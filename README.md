@@ -1,2 +1,2 @@
 # Hearts
-Aweasome lovely heart effect
+Aweasome lovely💖 💖 effect
